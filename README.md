@@ -4,15 +4,11 @@
 
 I'm Roger Fan. You probably don't know me. If you do know me, go away. If you don't, I will now proceed to consume your goldfish.
 
-I do stuff here. I specialize in procrastination and time wasting, so contact me if you need help with burning the already little time you have left. You can reach me [here!](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-
-<iframe src="https://github.com/BubbyBabur/BubbyBabur/edit/master/README.md"></iframe>
-
 Now I will misuse the given template for my profile:
 
 - 🔭 **I’m currently working on** my computer. Yes it's a Mac, and from experience, I can tell you that Macs suck. I'm also working in Javascript, and if your main language is Python, we legally cannot be friends.
 
-- 🌱 **I’m currently learning** that my sleep schedule is so messed up oh my allergies from reese's peanut butter cups
+- 🌱 **I’m currently learning** that maybe procrastinating during the day and destroying my slep schedule probably isn't the best way to prepare for the school year.
 
 - 👯 **I’m looking to collaborate on** nothing. Because "that's social interaction and I don't support it." - Michael Reeves.
 
@@ -31,6 +27,10 @@ Now I will misuse the given template for my profile:
 
 - ⚡ **Fun fact:** -.-- --- ..- / .--- ..- ... - / ... . .- .-. -.-. .... . -.. / ..- .--. / .- / -- --- .-. ... . / -.-. --- -.. . / - .-. .- -. ... .-.. .- - --- .-. / --- -. / --. --- --- --. .-.. . / -.. .. -.. -. .----. - / -.-- --- ..-
 
-Go check on your goldfish now goodbye
+### Ok so User Info
+Roger Fan
+Student and Full-Time Procrastinator
+rogerjoeyfan@gmail.com is my gmail, I literally have no social media except for Google Hangouts and maybe Discord because I have an irrational phobia of all things starting with "Insta-", "Twit-", "Face-", "Snap-", "Redd-", "Pinte-", "Sky-", "Zo-", "Schoolog-", and "Never Gonna Gi-".
 
+Go check on your goldfish now goodbye
 
