@@ -20,8 +20,7 @@ Now I will misuse the given template for my profile:
 1. Use your arms, jeez. I don't understand what you're trying to ask for.
 2. Go train for another 1000 years
 3. @realDonaldTrump on Twitter, where taxes, death, and Trump spreading misinformation are the 3 constants of life.
-4. Go through the lengthy process of spamming merge requests until I notice, then reset all clocks within a 1 mile radius of you to 12:00 midnight at the noon of the 9th day of the 6th month, then recite the alphabet backwards while humming the tune to Rick Astley's hit single Never Gonna Give You Up while beating quintets over eighth notes, and I will be summoned immediately.
-5. rogerjoeyfan@gmail.com i have a middle name and if you bring it up I will immediately be teleported outside your window and will use dark magic to send you into realm where up is down and down is up. If I don't immediately respond to your email or google hangouts invite it means I despise you specifically because of that one dumb thing you did when you were 5 but still cringe from 10 years later ok im done.
+4. rogerjoeyfan@gmail.com Yes I have a middle name if you bring it up ever I will personally feed you to the underrealm
 
 - 😄 **Pronouns:** He him go call me anything honestly i don't get offended by these things
 
