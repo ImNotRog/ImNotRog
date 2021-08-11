@@ -1,6 +1,5 @@
-## Hi, I'm Roger Fan
+## Hello! I'm Roger Fan
 
-I'm Roger Fan, Gunn HS '24. Slowly suffocating on the hedonic treadmill of Bio TRGs.
-I know HTML/CSS/JS, NodeJS, Java, Python, and a little C++, but only use JS and Java. I use Github mainly to store code in case my computer suddenly decides to embrace the sweet release of death without my approval.
+Contrary to what my username may state, I am actually Roger Fan. I'm in the Gunn High School Class of 2024, and I do things sometimes!
 
-If you need anything, you probably know me and have means of contacting me.
+You can contact me through email at rogerjoeyfan@gmail.com, but honestly, if you're reading this, you probably already know me.
